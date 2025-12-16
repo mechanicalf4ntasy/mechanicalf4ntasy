@@ -13,4 +13,4 @@ And I uhm uhm uhm..... REALLYYYYY love Murder Drones... Mostly Cyn... And J... A
 
 ***Art below was made by Dana Terrace ! ! !***
 
-![Faggot](https://pbs.twimg.com/media/GhwnUTmagAEkDTa?format=jpg&name=large)
+![Faggot](https://64.media.tumblr.com/d8e3592562899f7a94308640a3dd1ee4/8925338e8aa6516c-01/s1280x1920/aa2313914b9433035077caa7a3c5fbecf3648ca8.jpg)
