@@ -9,7 +9,7 @@ And lastly for Pony Town, I go AFK a lot without saying anything- So I apologize
 I MIGHT be neurodivergent or smth idfk (I can't get diagnosed...)
 
 I love uh uhm- Knights of Guinevere uhm uh mu hm.... A LOT... TOO MUCH
-And I uhm uhm uhm..... REALLYYYYY love Meleeniacs... Boggles... Mostly Boggles... I like clownnin' around...
+And I uhm uhm uhm..... REALLYYYYY love Murder Drones... Mostly Cyn... And J... And Tessa... Heh- she murder on my drone till I uh... uh.
 
 ***Art below was made by Dana Terrace ! ! !***
 
