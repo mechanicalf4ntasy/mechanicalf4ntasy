@@ -1,6 +1,6 @@
 ***PFP art made by mimi26999 on tumblr ! ! !***
 
-HELLO HELLO HELLO ! ! ! You can call me Mecha, Fanta, Blueche3se, Solar, or by anyone I cosplay as in Pony Town!
+HELLO HELLO HELLO ! ! ! You can call me J, Mecha, Fanta, Blueche3se, Solar, or by anyone I cosplay as in Pony Town!
 
 On Pony Town, you are always welcome to C+H!
 
