@@ -1,4 +1,4 @@
-HELLO HELLO HELLO ! ! ! You can call me Static, Miku, J, Mecha, Fanta, Bluecheese, Solar, or by anyone I cosplay as in Pony Town!
+HELLO HELLO HELLO ! ! ! You can call me Static, Andi, J, Mecha, Fanta, Bluecheese, Solar, Blister, or by anyone I cosplay as in Pony Town!
 
 On Pony Town, you are always welcome to C+H!
 
