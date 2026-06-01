@@ -10,4 +10,4 @@ I love uhm uhm uh... Amphibia? Marcanne? MARCANNE!!! MARCY AND ANNE ! ! !
 
 ***Art below was made by @Sourbeefio on twitter ! ! !***
 
-![MARCANNE YURI YURI YURI](<img width="857" height="507" alt="download - 2026-05-31T210316 072" src="https://github.com/user-attachments/assets/7f6734cc-0a44-4aef-8634-088ad7c8a405" />)
+![MARCANNE YURI YURI YURI](https://i.pinimg.com/736x/e7/64/79/e764791ef99384720b317824aa986c40.jpg)
