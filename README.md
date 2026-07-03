@@ -1,12 +1,12 @@
-HELLO HELLO HELLO ! ! ! You can call me Static, Marcy, Anne, Mecha, Fanta, or anyone I cosplay as in Pony Town!
+HELLO HELLO HELLO ! ! ! You can call me Static, Mecha, Fanta, or anyone I cosplay as in Pony Town!
 
 On Pony Town, you are always welcome to C+H!
 
-And lastly for Pony Town, I go AFK a lot without saying anything- So I apologize if I don't respond to anything ! ! !
+I AM A MINOR ! ! !
 
 I MIGHT be neurodivergent or smth idfk (I can't get diagnosed...)
 
-I love uhm uhm uh... Amphibia? Marcanne? MARCANNE!!! MARCY AND ANNE ! ! !
+I love uhm uhm uh... Steven Universe uhmmmm.... Rhodonite? Padparadscha??? YES ! ! !
 
 ***Art below was made by @Sourbeefio on twitter ! ! !***
 
