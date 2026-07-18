@@ -1,4 +1,4 @@
-***Pfp made by atti_qu on twitter!***
+***Pfp made by @TMimopa on twitter!***
 
 HELLO HELLO HELLO ! ! ! You can call me Static, Mecha, Fanta, or anyone I cosplay as in Pony Town!
 
