@@ -10,4 +10,6 @@ I MIGHT be neurodivergent or smth idfk (I can't get diagnosed...)
 
 I love uhm uhm uh... Splatoon yes? Knights of Guinevere? YEAH YEAH YEAH! Witch Hat Atelier??? YEAHHHHH YEAH YEAH YEAH YES YES YES!!! BLEGHHHHH!!!!!
 
-![why is he the best thing that ever happened?](https://github.com/mechanicalf4ntasy/mechanicalf4ntasy/blob/main/download%20-%202026-10-20T162717.008.png?raw=true)
+<p align="center">
+  <img src="[why is he the best thing that ever happened?](https://github.com/mechanicalf4ntasy/mechanicalf4ntasy/blob/main/download%20-%202026-10-20T162717.008.png?raw=true)" alt="Description" width="400">
+</p>
