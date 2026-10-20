@@ -1,6 +1,6 @@
 ***Pfp made by @TMimopa on twitter!***
 
-HELLO HELLO HELLO ! ! ! You can call me Static, Mecha, Fanta, or anyone I cosplay as in Pony Town!
+HELLO HELLO HELLO ! ! ! You can call me Mecha, Fanta, Coco, Agott, or anyone I cosplay as in Pony Town!
 
 On Pony Town, you are always welcome to C+H!
 
