@@ -8,9 +8,8 @@
 
 <p align="center"> I MIGHT be neurodivergent or smth idfk (I can't get diagnosed...)
 
-<p align="center"> I love uhm uhm uh... Splatoon yes? Knights of Guinevere? YEAH YEAH YEAH! Witch Hat Atelier??? YEAHHHHH YEAH YEAH YEAH YES YES YES!!! BLEGHHHHH!!!!!
+<p align="center"> I love uhm uhm uh... Splatoon yes? Knights of Guinevere? YEAH YEAH YEAH! Witch Hat Atelier??? YEAHHHHH YEAH YEAH YEAH YES YES YES!!!
 
-<img align="left" width="100" src="https://64.media.tumblr.com/548d7f328fa54b3159ad1488d8c432c2/7ac276fc8f945388-e0/s250x400/d3d5ad111f765451cebab7ca70e77335abba2512.gifv">
-
+<img align="center" width="200" src="https://64.media.tumblr.com/9c7fd24727f09dda6303e8f4a0b87005/7ac276fc8f945388-16/s2048x3072/58c9b251691ae5309c6c6d92e76c1c6db42f72e4.gifv">
 <p align="center"> <img src="https://github.com/mechanicalf4ntasy/mechanicalf4ntasy/blob/main/download%20-%202026-10-20T162717.008.png?raw=true" alt="Description" width="400">
 </p>
