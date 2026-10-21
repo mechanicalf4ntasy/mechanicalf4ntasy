@@ -1,4 +1,4 @@
-<p align="center"> HELLO HELLO HELLO ! ! ! You can call me Mecha, Fanta, Coco, Agott, or anyone I cosplay as in Pony Town!
+<p align="center"> HELLO HELLO HELLO ! ! ! You can call me Euini, Coco, Agott, or anyone I cosplay as in Pony Town!
 
 <p align="center"> On Pony Town, you are always welcome to C+H!
 
